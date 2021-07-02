@@ -10,7 +10,7 @@ While most recently I’ve been crafting unique cocktails as a mixologist and su
 - 🤓 At the moment I'm reading 'BLOOD, SWEAT, AND PIXELS' (Stories behind, how video games are made).
 - 🎥 I saw a few docu movies, the first about AI [AlphaGo](https://youtu.be/WXuK6gekU1Y) and the second [The Art of Code](https://youtu.be/6avJHaC3C2U).
 - 🍝🍕🍺🍷🍸 lover.
-- 🏋️ Free Time workout and meditation.
+- 🏋️ Free Time: Workout, Yoga, Meditation and ♟️ Chess.
 
 <!--
 ### Hi there
